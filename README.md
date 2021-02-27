@@ -1,1 +1,1 @@
-![](https://github.com/SaraOhara/SaraOhara/blob/main/Fuga%20Colagem%20Blog%20Banner%20(2).png)
+![](https://github.com/SaraOhara/SaraOhara/blob/main/Green%20and%20White%20Technology%20LinkedIn%20Banner%20(3).png)
